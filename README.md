@@ -10,7 +10,7 @@ Please feel free to take whatever you like. Give me credit, dont give me credit.
 me if something goes wrong, as they are not covered under any warranty and are provided "as-is".
 
 If you want to contact me, please feel free to visit my blog www.barkingcat.com.au 
-or send me an email at a.l.jackson85@gmail.com.
+or send me an email at aaron@barkingcat.com.au
 
 Thanks,
 
